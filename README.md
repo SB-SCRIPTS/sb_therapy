@@ -95,4 +95,8 @@ For issues or customization requests, feel free to contact the script developer.
 
 Enjoy your training script!
 
+Buy Now On Tebex!
+
+https://sb-scripts-webstore.tebex.io/package/6672138 Happy Moding!
+
 
